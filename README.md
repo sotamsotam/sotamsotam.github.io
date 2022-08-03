@@ -1,1 +1,0 @@
-# sotamsotam.github.io
